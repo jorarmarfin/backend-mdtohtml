@@ -1,0 +1,1 @@
+![Texto Alternativo](https://imgv3.fotor.com/images/cover-photo-image/ai-generate-dragon-from-text-in-Fotor-AI-image-generator.jpg)
